@@ -2,4 +2,4 @@
 2 colheres de fermento
 2 ovos
 1 colher de óleo
-1 colher de margarina
+2 colheres de margarina
